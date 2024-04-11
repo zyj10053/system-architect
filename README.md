@@ -22,6 +22,6 @@
 
 ![](/assets/images/20240411100849.png)
 
-***需要视频资料可加v***
+***需要视频资料可加微信***
 
 <img src="/assets/images/20240411112527.jpg" width="100px">
